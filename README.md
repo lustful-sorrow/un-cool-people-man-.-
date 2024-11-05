@@ -5,4 +5,5 @@
 ![alt tag](https://i.postimg.cc/wMKmHkKR/strawpage-picasso-YMc-KTdn-Thwxg-UBKLPDXX-png.webp)
 ![alt tag](https://i.postimg.cc/HLx5tx4n/strawpage-picasso-wdkk-Isr-Fe-Sbuwjw-Se-ZBx-png.webp)
 ![alt tag](https://i.postimg.cc/Hsgyh34f/strawpage-picasso-u-AFz-CPWyeo-RTCz-Se-IYv-L-png.webp)
+![alt tag](https://i.postimg.cc/PxvwBR7k/strawpage-picasso-XGw-Caotqr-KBupi-XXHvbp-png.webp)
 ![alt tag](https://i.postimg.cc/8chrCrDK/strawpage-picasso-o-Sjz-Hx-TGQo-IDjy-Tk-Sj-Lj-png.webp)
