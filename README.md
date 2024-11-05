@@ -10,3 +10,5 @@
 ![alt tag](https://i.postimg.cc/hGq6Jk92/strawpage-picasso-woa-XYv-Uqqqs-IOyrp-PWjr-png.webp)
 ![alt tag](https://i.postimg.cc/52zD24FH/strawpage-picasso-Uj-ZLTihmy-Ge-PPt-Hc-JPpg-png.webp)
 ![Alt tag](https://i.postimg.cc/prdgWKDx/strawpage-picasso-seyhpn-WHv-Ma-PSk-PSppm-L-png.webp)
+![alt tag](https://i.postimg.cc/zvbCTV71/SPOILER-Screenshot-20241018-011813.png)
+![alt tag](https://i.postimg.cc/RV6DgSdP/SPOILER-Screenshot-20241105-022135-Chrome.jpg)
